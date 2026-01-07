@@ -1,3 +1,3 @@
 # hi this is a test
 
-tank you for watching
+thank you for watching
